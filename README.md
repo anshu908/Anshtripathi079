@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **Web Dev**
 
-- 📫 How to reach me **tripathiansh673@gmail.com**
+- 📫 How to reach me **anshppt19@gmail.com@gmail.com**
 
 - ⚡ Fun fact **Learning every second**
 <br>
